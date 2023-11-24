@@ -22,7 +22,13 @@
 Bilingual SKILLS:During the university, gaining LELTS: Overall: 6.0  Listening:6.5  Reading:6.0  Writing:6.0  Speaking:6.0 
 and overall 545 in CET4 test:listening :184 Reading:198 Translation and writing:163</p >
 
+Experience:Volunteer,  Liu Haishu Art Museum, Changning District,Shanghai,China,20/04/2021
+ Guided the visitors , told them better route and explain the artistic value .  
 
+ Trainee/Youth party school of Shanghai, 06/2021-08/2021
+Enhanced the organization skills by holding activities.
+Improved the coordination and communication skills.
+Learned bar chart and pie chart to analyze issues in the society</p >
 
 
 <h2>联系方式</h2>
