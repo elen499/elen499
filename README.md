@@ -15,15 +15,13 @@
 <p>A human with many hobbies, slow movements, laziness, and fear of falling behind</p >
 
 <h2>个人简历</h2>
-<p>In high school,owning the honors included 2021 Excellent Student of Changning District in Shanghai 
+<p>HONORS AND AWARDS:In high school,owning the honors included 2021 Excellent Student of Changning District in Shanghai 
 2021and2022 Merit  student of high school  
 2022 outstanding student of Youth Party School of Shanghai
-During the university, gaining LELTS: Overall: 6.0  Listening:6.5  Reading:6.0  Writing:6.0  Speaking:6.0 
-and 545 in CET4 test</p >
+  
+Bilingual SKILLS:During the university, gaining LELTS: Overall: 6.0  Listening:6.5  Reading:6.0  Writing:6.0  Speaking:6.0 
+and overall 545 in CET4 test:listening :184 Reading:198 Translation and writing:163</p >
 
-<h2>个人照片</h2>
-< img src="![6ce86c25eef346785b4f68c3f193994](https://github.com/elen499/elen499/assets/151855937/2bf633e3-06b2-497f-b0db-dd7c860dd1d2)
-" alt="个人照片">
 
 
 
