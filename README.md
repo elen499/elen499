@@ -20,7 +20,7 @@
 2022 outstanding student of Youth Party School of Shanghai
   
 Bilingual skills:During the university, gaining LELTS: Overall: 6.0  Listening:6.5  Reading:6.0  Writing:6.0  Speaking:6.0 
-and overall 545 in CET4 test:listening :184 Reading:198 Translation and writing:163</p >
+and overall 545 in CET4 test:listening :184   Reading:198   Translation and writing:163</p >
 
 
 Experience:Volunteer,  Liu Haishu Art Museum, Changning District,Shanghai,China,20/04/2021
