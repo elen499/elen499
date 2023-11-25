@@ -30,6 +30,8 @@ Enhanced the organization skills by holding activities.
 Improved the coordination and communication skills.
 Learned bar chart and pie chart to analyze issues in the society</p >
 
+Presentation and report in the university:
+
 
 <h2>联系方式</h2>
 <p>Email：1561684751@qq.com</p >
